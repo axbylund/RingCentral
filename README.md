@@ -8,3 +8,4 @@ Ring Central API Example - Graduated app
 - https://yadi.sk/i/RIBXvbkr40TTTg
 - "You WILL be bitten."
 - sksk fuch you operator
+- https://www.youtube.com/watch?v=gMrNQbW5Am8
